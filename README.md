@@ -10,5 +10,5 @@
 
 ~ 📫 Discord: @Coding_Ini .°•○`
 
-~⚡ Fun fact: The name Java originated from the beverage being taken at the time it was created (I may be wrong don't judge :])
+~⚡ Fun fact: The name Java originated from the cofee beverage being taken at the time it was created (I may be wrong don't judge :] )
 
