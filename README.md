@@ -1,4 +1,4 @@
-~ 👋 Hi I'm a 15 year old girl and a beginner in the coding world .°•○`
+~ 👋 Hi I'm a 14 year old girl and a beginner in the coding world .°•○`
 
 ~ 💖 I enjoy learning to code, basketball, watching TV, and reading books .°•○`
 
